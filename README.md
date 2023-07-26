@@ -1,1 +1,0 @@
-# kudayasu.github.io
